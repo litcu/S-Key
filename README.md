@@ -1,4 +1,4 @@
-具体内容可前往我的[个人博客](https://littlecu.cn/archives/123)访问。
+具体内容可前往我的[个人博客](https://www.litcu.cn/posts/f1f57ba1/)访问。
 
 # S/Key身份认证
 
